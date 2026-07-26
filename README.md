@@ -1,4 +1,4 @@
-# Hi, I'm Israt Neha 👋
+# Hi, I'm Israt Abdullah Neha 👋
 
 ### Aspiring AI Engineer
 
